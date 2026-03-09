@@ -1,4 +1,4 @@
-# 👨‍💻 Srikrishnan Srinivasan
+# Srikrishnan Srinivasan
 
 > *"I must Create a System, or be enslav'd by another Mans.
 I will not Reason & Compare: my business is to Create."*
